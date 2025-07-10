@@ -75,5 +75,5 @@ I'm currently open to:
 📩 Reach me via [lorynejoynyanchama@gmail.com](mailto:lorynejoynyanchama@gmail.com) or connect on [LinkedIn](https://www.linkedin.com/in/loryne-joy777)
 
 ---
-
+To access my articles, 👉 [click here](https://dev.to/loryne_joy) 🖱️💥
 > 💡 *“Data is not just numbers. It’s a story waiting to be told—and I’m here to tell it with clarity, creativity, and purpose.”*
